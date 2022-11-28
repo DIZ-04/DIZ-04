@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @DIZ-04
-- I'm just a below-average Czech student who is going to use this to store his and his teammates' projects here
+- I have no idea what to put here
